@@ -2,7 +2,7 @@
 
 📚-          I am class of 2025 at the University of Chicago 
 
-🔢-            I am an economics and Applied Mathematics Major  
+🔢-            I am an Economics and Applied Mathematics Major  
 
 🏈🏀♟️-           I am interested in many sports, as well as poker, trading, chess and reading   
 
